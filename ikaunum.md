@@ -1,0 +1,1 @@
+ika inum najud! hinaut pa unta ayaw nako labda. .
